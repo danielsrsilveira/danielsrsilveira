@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-No decorrer dos anos, tenho acumulado uma bagaem profissional e pessoal que moldou minha carreira. Construindo uma carreira na área de Tecnologia da Informação, adquiri experiência significativa em diversas áreas, incluindo suporte técnico e testes de software.
+No decorrer dos anos, tenho acumulado conhecimento profissional e pessoal que moldou minha carreira. Construindo uma carreira na área de Tecnologia da Informação, adquiri experiência significativa em diversas áreas, incluindo suporte técnico e testes de software.
 
 Meu percurso profissional tem sido marcado pela busca constante pelo aprimoramento em encontrar soluções. ao longo dos anos, desenvolvi habilidades técnicas sólidas e uma capacidade de adaptar-me a ambientes dinâmicos e em constante evolução.
 
